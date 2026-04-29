@@ -1,4 +1,4 @@
-
+Experience piggy like never before with piggy Scripts stealth, the #1 Script. Includes anti-ban and auto-collect for unbeatable performance.
 
 
 
